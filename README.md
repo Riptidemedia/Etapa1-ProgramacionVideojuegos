@@ -12,8 +12,8 @@ Technical Artist
 
 ##Ubicación
 
-Colombia
+Sibaté - Cundinamarca - Colombia
 
 ##Perfil
 
-Estudiante de Ingeniería Multimedia con interés en desarrollo de videojuegos, diseño sonoro y programación interactiva.
+Soy Tecnológo en Producción Multimedia en formación en Ingeniería Multimedia, actualmente con más de 4 años de experiencia en todo el ambito multimedial. Con un interes más enfocado a los detalles, la parte visual y técnica.
